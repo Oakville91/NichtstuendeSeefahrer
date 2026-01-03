@@ -1,7 +1,7 @@
 # ✨ Bruder Alaric Lichtträger
 *Priester des Ordens der Goldenen Flamme*
 
-![Porträt eines Priesters]([https://picsum.photos/seed/priest-rpg/600/800](https://i.pinimg.com/originals/7f/64/73/7f6473a15fdbad6bace16157e5ee3c89.jpg))
+![Empty file illustration](https://i.pinimg.com/originals/7f/64/73/7f6473a15fdbad6bace16157e5ee3c89.jpg)
 
 ---
 
