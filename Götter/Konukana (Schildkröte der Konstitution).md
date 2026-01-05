@@ -1,4 +1,4 @@
-![](https://raw.githubusercontent.com/Oakville91/NichtstuendeSeefahrer/main/Götter/konukana.jpg)
+![](https://raw.githubusercontent.com/Oakville91/NichtstuendeSeefahrer/main/Götter/Konukana.jpg)
 
 Konukana, die gelbe Schildkröte, ist das Symbol von Ausdauer, Geduld und Schutz. Langsam, aber unaufhaltsam, lehrt sie, dass Standhaftigkeit und ein starker Panzer Herausforderungen überdauern.
 
