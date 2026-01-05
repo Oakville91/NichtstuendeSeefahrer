@@ -1,0 +1,3 @@
+![Insel des Plankenkönigs](https://raw.githubusercontent.com/Oakville91/NichtstuendeSeefahrer/main/Inseln/Insel%20des%20Plankenk%C3%B6nigs.png)
+
+Die Insel des Plankenkönigs ist sichelmondförmig und dient dem berüchtigten Piratenkönig als prunkvoller Rückzugsort. An der geschützten Innenseite des Sichelmondes liegt der Hafen, von dem sich ein schlangenförmiger Weg hinauf zu einem großen Festzelt zieht, das hoch oben in der Mitte der Insel thront und für rauschende Feiern genutzt wird. Während die Außenseite der Insel von steilen Klippen umgeben ist, erstreckt sich im Inneren flaches Gelände. Im Osten verbirgt sich eine Höhle, durch die Schmuggelgüter unauffällig direkt in ein Lagerhaus gebracht werden können.
